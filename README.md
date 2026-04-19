@@ -1,9 +1,9 @@
-# Project Title
+Thando Sthe Pty Ltd
 Your project's title
 
 ## Student Information
-**Student number:** Your student number <br>
-**Student Name:** Your full name
+**Student number:** ST10527363 <br>
+**Student Name:** Boitumelo Lebepe name
 
 ## Project Overview
 
