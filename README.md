@@ -71,3 +71,15 @@ Completion of part 1 assignment-Submit part 1 assignment
 ## References
 
 Ensure that all sources used in your assignment are cited and referenced using the Harvard referencing style.
+[Headphone Expert] [Comfortable office chairs worth every penny [Accessed on 19 April 2026] Available at:	https://pin.it/2En383A4F
+[Amercis OF] Premium leather office chairs [Accessed on 19 April 2026] Available at:	https://pin.it/6VUqQI6mU
+[Eureka ergonomics] Serene Ella, Genuine Leather Executive Office Chair [Accessed on 19 April 2026] Available at:	https://pin.it/n455B8Oeu
+[Pourkazem] Costa Executive Desk from Iconic office Furniture [Accessed on 19 April 2026] Available at:	https://pin.it/2kxjLySKC
+[ Edel Alegre] Modular Cabin Table Manufacturer and Supply [Accessed on 19 April 2026] Available at:	https://pin.it/LEuBsF6Q0
+[Shopee Indonesia] Back to school supplies Essentials [Accessed on 19 April 2026] Available at:	https://pin.it/ISZLpYBuH
+[Supply Concepts, Inc] Office furniture | Supply [Accessed on 19 April 2026] Available at:	https://pin.it/2Ss2gFISu
+[Stock Adobe] Set of office objects [Accessed on 19 April 2026] Available at:	https://pin.it/6dYJIDfBM
+[Etsy]Cleaning supplies Kit-Practical housewarming Gift Basket [Accessed on 19 April 2026] Available at:	https://pin.it/6ZaMlc0Fw
+[Shein]Blank Cards suitable for Business Cards {Accessed on 19 April 2026] Available at:	https://pin.it/5pIl9H8b0
+[Shadow Breeze | Custom Curated Corporate Gifts] Same-Day Bulk branded Corporate Gifts for employees and clients [Accessed on 19April 2026] Available at:	https://pin.it/6wgWApvoa
+
