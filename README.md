@@ -66,7 +66,7 @@ Completion of part 1 assignment-Submit part 1 assignment
 ## Sitemap
 
 ![Website Sitemap](img/mysitemap.png) <br> (The one here is only an example, include your own site map) My own sitemap
-<img src="Thando Sthe Pty Ltd Sitemap.png >
+<img src="Thando Sthe Pty Ltd Sitemap.png">
 
 ## References
 
